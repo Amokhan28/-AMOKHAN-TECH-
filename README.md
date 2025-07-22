@@ -1,2 +1,4 @@
-# -AMOKHAN-TECH-
-welcome to my bot
+# -AMOKHAN-TECH--AMOKHAN-TECH 
+ ┣━━┫AMOKHAN TECH┣━━┫
+               
+    welcome to my bot
